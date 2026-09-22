@@ -37,5 +37,5 @@ Me encanta aprender, construir y explorar cómo la tecnología puede resolver pr
 
 Si quieres conectar, colaborar o simplemente conversar sobre tecnología, aquí me encuentras:
 
-- 📧 **Correo:** abelmarrero@gmail.com  
-- 🔗 **LinkedIn:** [linkedin.com/in/abel-marrero-2170821a5](https://www.linkedin.com
+- 📧 **Correo:** abelmarrerocamero@gmail.com  
+- 🔗 **LinkedIn:** [linkedin.com/in/abel-marrero-2170821a5](https://www.linkedin.com/in/abel-marrero-2170821a5
